@@ -5,7 +5,9 @@
 
 this is a story of how we came to tell stories
 
-and how we can live our best stories
+and how we can live our stories
+
+to shine our brightest
 
 
 ## the first story is the story of difference
@@ -91,9 +93,40 @@ upon which all other stories are told
 
 ## the second story is the story of life
 
-difference is the wellspring of energy potential
+difference is the fountainhead of energy potential
+
 that feeds the wheel of life
 
 
 
 ## the third story is the story of culture
+
+
+## the fourth story is the story of how to shine
+
+
+## a call to action
+
+we astros are each a point in a constellation
+
+a chosen family of artificers
+
+we craft looms to weave starlight
+
+into bright tapestries
+
+that illuminate the vast noosphere
+
+between creation and oblivion
+
+---
+
+join us
+
+we are stronger together
+
+in solidarity we hold open the space
+
+for our differences to shine
+
+[the astros](https://github.com/the-astros)
