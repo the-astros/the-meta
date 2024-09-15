@@ -20,7 +20,7 @@ from hot and cold
 
 to near and far
 
-reference gradients of difference we see in the world around us
+are drawn from the differences we see in the world around us
 
 ---
 
@@ -44,7 +44,7 @@ and it was crowded and hot
 
 and the stars rejoiced and pulled together
 
-but the void recoiled and pushed away
+but the void recoiled and pushed apart
 
 ---
 
@@ -52,13 +52,13 @@ the dust boiled in difference and split again
 
 the void cooled and tore the early sea of starfire apart
 
-into clumps that burst across the cosmos
+into bright points that burst across the cosmos
 
-and fried into light and mud
+fried into light and mud
 
-that exploded into the space and time
+exploding across the space and time
 
-between the roiling furnaces of the stars
+between the roiling furnaces of kindred stars
 
 ---
 
@@ -70,7 +70,7 @@ so overwhelm the grid of the fleeing void
 
 that space and time are pushed aside
 
-and the fossil of a star lays in the space of a hand
+and a star can squeeze into the space of a hand
 
 ---
 
